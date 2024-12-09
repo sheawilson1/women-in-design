@@ -1,1 +1,1 @@
-# women-in-design
+# women-in-cc
